@@ -1,4 +1,4 @@
-[pronouns](https://pronouns.cc/@5mosh) --------- [ata](https://untildawn.atabook.org/)
+[pronouns](https://pronouns.cc/@5mosh) --------- [atabook](https://untildawn.atabook.org/)
 
 this is a freaking wip yo 👅👅</p>
 not to sound desperate but i really need friends bro PLEASE HMU</p>

@@ -3,4 +3,4 @@
 this is a freaking wip yo 👅👅</p>
 not to sound desperate but i really need friends bro PLEASE HMU</p>
 
-![](https://i.pinimg.com/736x/7b/e5/cd/7be5cd722cd4d3aaabcff27906703ce6.jpg) </p>
+![](https://i.pinimg.com/736x/4b/79/eb/4b79ebc0b9aa3bece8249b7d1aa860f0.jpg)

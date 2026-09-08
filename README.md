@@ -6,5 +6,3 @@
 
 not to sound desperate but i really need friends bro PLEASE HMU</p>
 i ALWAYS have my github connected to my ponies</p>
-
-![](https://view-counter.tobyhagan.com/?user=fakepiastictrees&base=FF964F&accent=brown&icon=true&flat=true)

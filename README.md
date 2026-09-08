@@ -1,4 +1,4 @@
-<div align="center">︶⊹︶︶ ☣︎ ︶︶⊹︶
+<div align="center">
 
 [pronouns](https://pronouns.cc/@5mosh) ᓚᘏᕐᐷ [atabook](https://untildawn.atabook.org/)
 

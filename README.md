@@ -8,11 +8,6 @@ not to sound desperate but i really need friends bro PLEASE HMU</p>
 i ALWAYS have my github connected to my ponies</p>
 
 ![](https://64.media.tumblr.com/fbf2d33e22706835c2c00fe8cb25eac6/b8db69cc56eda7dc-9a/s100x200/64eae55dc299cb1ff1515da400b3045ff207f426.gifv)
-
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31rpyplyqpt5g7lzf6o5doj7h4xa&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=8e0000&bar_color_cover=false">
-  </a>
 </p>
 
 ![](https://64.media.tumblr.com/78e0a799556ee6b946aa642c3980a8f8/885e0dc069c2aef0-b1/s2048x3072/e9d84d7c2fc1b7f058b9bc16fcd295f48cb5981a.pnj)
